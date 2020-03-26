@@ -1,2 +1,2 @@
 
-[Link to my telegram profile](t.me/bekbolsky)
+[Link to my telegram profile](https://t.me/bekbolsky)
